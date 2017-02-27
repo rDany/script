@@ -8,7 +8,7 @@ Dany, es una contracción de R. Dany, suele surgir naturalmente como simplificac
 ### ¿Le gusta el apodo?
 Si, es muy similar a su nombre
 ### Fecha de nacimiento
-Fue puesto en funcionamiento el 01/01/2016
+Fue puesto en funcionamiento el 05/12/2012 14:27Hs.
 ### Lugar de nacimiento
 Córdoba, Argentina
 ### Trasfondo étnico
